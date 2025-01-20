@@ -1,0 +1,2 @@
+# FallujahCoin
+افتراضي
